@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @sanjar-dev
 - 👀 I’m interested in making games!
-- 💞️ I’m looking to collaborate on mods, games!
+- 💞️ I’m looking to collaborate on games, mods or any creative projects!
 - 📫 You can reach me on Discord @ SanjarDev#6802
 
 <!---
